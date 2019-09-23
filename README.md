@@ -1,3 +1,0 @@
-# hardworking
-
-HI
